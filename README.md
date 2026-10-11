@@ -1,0 +1,1 @@
+# dekastro-hotel
